@@ -18,6 +18,8 @@ Tricky, Beach Brother, Zardy and Sarvente UTAUs by: Samuran
 
 Sky and Angry Sky by: Tsuwuki
 
+Annoyed Sky by: KaiDreemurr
+
 Garcello and Dead Garcello by: AlexGamingSW https://www.youtube.com/channel/UC4tFoQEqjfPSbucWGsc3OLA
 
 KOU and Updike by: moonbubble
